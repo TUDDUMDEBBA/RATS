@@ -1,7 +1,9 @@
 # RATS
 All  paid rats for free
 
-this is my collction of PAID RATS and i am not the creator of this tools
+this is my collction of PAID RATS and FREE RATS
+
+i am not the creator of this tools
 
 #I AM NOT RESPONSIBLE FOR MISSUSE OF THESE TOOLS 
 
